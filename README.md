@@ -24,7 +24,7 @@ Munirah Mohamad
 
 If you’re interested in hiring or discussing Digital Forensics and eDiscovery:
 
-📧 Email: munirahbtemohamad@gmail.com
+📧 Email: munirahmohamad.sg@gmail.com
 
 
 
