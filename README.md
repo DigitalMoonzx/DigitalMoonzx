@@ -17,8 +17,10 @@ Munirah Mohamad
 
 
 ## 👩🏻‍💻 Work Experience:
+- Deloitte Singapore (~ 4 years)
 
 ## 📜 Certifications:
+- GIAC Certified Forensic Analyst (GCFA)
 
 ## 🤳 Connect with Me:
 
